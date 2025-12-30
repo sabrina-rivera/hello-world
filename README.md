@@ -12,7 +12,7 @@ I’m committed to continuous learning—regularly exploring new analytical tech
 
 ## Contact Me
 
-Message me on **LinkedIn** for possible opportunities or questions.
+Message me on **LinkedIn** for career opportunities or questions.
 www.linkedin.com/in/sabrina-r
 
 <p align="center">
